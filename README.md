@@ -4,4 +4,4 @@
 
 I am Yankang. I'm from team Sambal, working currently on the homeowner world project.
 
-I like to read Japanese fashion magazines in my free time. I occasionally also enjoy playing with my 3-year-old son.
+I like to read Japanese fashion magazines in my free time. I occasionally also enjoy playing with my 4-year-old son.
