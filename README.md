@@ -4,4 +4,4 @@
 
 I am Yankang. I'm from team Techno Vikings, working currently on the ImmoKlub project.
 
-I like to read Japanese fashion magazines in my free time. I occasionally also enjoy playing with my almost 5-year-old son.
+I like to read Japanese fashion magazines in my free time. I occasionally also enjoy playing with my 5-year-old son.
