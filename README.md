@@ -4,4 +4,4 @@
 
 I am Yankang. I'm from team Chilli and team Pepper, working currently on the topics on listing insertion, publication, and insights.
 
-I like to read Japanese fashion magazines in my free time. I occasionally also enjoy playing with my 5-year-old son.
+I like to read Japanese fashion magazines in my free time. I occasionally also enjoy playing with my 6-year-old son.
